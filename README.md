@@ -39,11 +39,11 @@ Linux：Shell clash（命令行）、Mihomo-Party、clash-verge-rev和FLClash的
 移动联通电信三网深港IEPL内网专线ss协议机场，小众精品机场。三网IEPL,可以解决目前跨网限速的问题。对于各个运营商的网络都比较友好。如果是单网特别是移动IEPL其它运营商可能体验不佳，相对低调。人少，体验还不错,速度很快，延迟较低，稳定性不错，流媒体还可以。老板说是一线机场发展的。有118一年200G的可以做备用。新人8折优惠券：boost
 
 
-[BoostNet机场官网地址1](https://boostqz.com?path=register&code=Pj4Wrfai)  
+[BoostNet机场官网地址1](https://boostqz.com?path=register&code=cQwYzpjj)  
 
-[BoostNet机场官网地址2](https://boostnet1.com/#/register?code=Pj4Wrfai)  
+[BoostNet机场官网地址2](https://boostnet1.com/#/register?code=cQwYzpjj)  
 
-[BoostNet机场官网地址2](https://boostnet2.com/#/register?code=Pj4Wrfai)  
+[BoostNet机场官网地址2](https://boostnet2.com/#/register?code=cQwYzpjj)  
 
 
 >开业时间：2024  
@@ -406,7 +406,7 @@ totorocloud，中转trojan机场。观察挺久，感觉速度都挺好。观察
 
 注意：speedcat、龙猫云、Flyingbird、一云梯是相同线路类型。别买重复了。
 
-[龙猫云机场官网地址](https://jctj02.lmvipaff03.cc/#/register?code=Qb502cPh)
+[龙猫云机场官网地址](https://inv03.lmaff01.cc/register?aff=9QZ7Wx1m)
 
 
 >开业时间：2022   
